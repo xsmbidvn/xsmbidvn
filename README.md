@@ -1,16 +1,15 @@
-### Hi there 👋
+### XSMB XSKT 3 miền
 
-<!--
-**xsmbidvn/xsmbidvn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+KQXS - XS - Xo So - Tường thuật trực tiếp Kết Quả Xổ Số Kiến Thiết 3 miền hôm nay nhanh, chính xác nhất. XS3M - XSKT 3 miền hàng ngày miễn phí, XSTT, KQSX
 
-Here are some ideas to get you started:
+- Địa chỉ: Hà Nội - Việt Nam
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- SĐT: 02473056666
+
+- Website: https://xsmb.id.vn
+
+https://www.pinterest.com/xsmbidvn/
+
+https://vimeo.com/xsmbidvn
+
+https://www.youtube.com/channel/UC59VdFlxVPCAVS8Stc5fSjQ
